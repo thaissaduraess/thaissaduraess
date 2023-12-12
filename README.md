@@ -1,4 +1,4 @@
-### Olá!! Eu sou a Thaíssa Durães. ✨  
+### Olá!! Eu sou Thaíssa Durães. ✨  
 
 ##
 
